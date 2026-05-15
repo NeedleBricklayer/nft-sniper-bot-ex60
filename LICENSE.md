@@ -1,4 +1,4 @@
-# 
+# updated NFT Floor Sweeper for nft sniper bot | liquidity-analysis & collection-scanning offers the most advanced nft sniper bot, with liquidity-analysis and collection-scanning.
 
 
 
